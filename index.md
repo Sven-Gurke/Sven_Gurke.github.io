@@ -16,3 +16,6 @@ Und ich finde diesen film total doof!, Ich schreibe das hier nur um die Prüfung
 
 ## Das ist sein Motto
 It's like in the great stories, Mr. Frodo. The ones that really mattered. Full of darkness and danger they were. And sometimes you didn't want to know the end… because how could the end be happy? How could the world go back to the way it was when so much bad had happened? But in the end, it’s only a passing thing… this shadow. Even darkness must pass.
+
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/8/81/Evanna_Lynch_acrylic_ink.jpg/800px-Evanna_Lynch_acrylic_ink.jpg"/>
